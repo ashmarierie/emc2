@@ -1,2 +1,1 @@
-# emc2
-it 9 proj 2 group music
+hi my name is ndfgbfhg and yes
